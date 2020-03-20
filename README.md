@@ -1,0 +1,1 @@
+# minimo-with_responsiv
